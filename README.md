@@ -1,6 +1,5 @@
 # Пять ночей с Саматом / Five Nights At Samat's
 
-![FiveNightsAtSamats](https://count.getloli.com/get/@FiveNightsAtSamats?theme=rule34)
 
 ## Редактирование
 
